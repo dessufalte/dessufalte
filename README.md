@@ -1,3 +1,2 @@
 Still learning...
 
-pp source : https://www.pixiv.net/en/artworks/102404293
